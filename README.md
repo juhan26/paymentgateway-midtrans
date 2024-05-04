@@ -4,4 +4,4 @@
 -education purpose only.
 
 
-### Dea Afrizal tutorial watch on Youtube
+- Dea Afrizal tutorial watch on Youtube [link](https://www.youtube.com/watch?v=tdDARiQOmZE&t=625s)
